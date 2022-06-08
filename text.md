@@ -5,4 +5,4 @@ Et c'est le phare a On!
 Son frére un type super connu sous le nom de Leon de la la célebre famille des "On". 
 En gros , le type a le même nom que son nom de famille.
 
-Mais le lion de s'associe pas avec le cafard.
+Mais le lion de s'associe pas avec le cafard. Encore une ref?
